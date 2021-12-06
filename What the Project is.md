@@ -12,6 +12,12 @@ The site I chose to look at it contained two grave stones with 5 burials. This b
 ![IMG_2140](https://user-images.githubusercontent.com/90994995/144790573-bf3ff2a7-bb9f-4305-b146-651827ecd022.jpeg)
 ![IMG_2106](https://user-images.githubusercontent.com/90994995/144790535-213e5c54-dea2-4002-bbad-a0fa9b442615.jpeg)
 
+On the stone with the 4  people I believe it is the father and mother and a son. The one person Mary however is hard to determine the relationship as she is younger then the parents but quite older then the brothers.  
+![IMG_2157](https://user-images.githubusercontent.com/90994995/144793109-c7fd7e79-9b6f-4759-a639-efe5b65c2449.jpeg)
+
+On the single stone I believe it is a second brother. 
+
+
 I also tried to find stylistically similar stones to try and determine if the stone was erected around of the time of the first deceased family member or for the last family member. 
 
 To me it appeared to be around the first man that died based on the elements on the stone and the time they appear on other stones in the cemetery. For example the shape of the stone, the cups on top and the ivy leave details.
@@ -32,4 +38,8 @@ These last two stones were quite similar in that they share the stones colour as
 
 ![IMG_2137](https://user-images.githubusercontent.com/90994995/144791259-93753d96-20b0-4f60-93ae-f5af9ece3039.jpeg)
 ![IMG_2151](https://user-images.githubusercontent.com/90994995/144792286-bd062c9c-eec5-4db7-8e79-84997ca653d7.jpeg)
+
+
+I also found other stones with the name Curry near these stones but I am unsure of the relationship between the groups of people.The Main man was born the same year as Mary. 
+![IMG_2139](https://user-images.githubusercontent.com/90994995/144793231-eaa2fd23-3f98-4940-9374-e4f5d5836401.jpeg)
 
